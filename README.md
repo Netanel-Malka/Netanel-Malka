@@ -1,4 +1,4 @@
-# netanel63071
+# Netanel Malka
 
 # 💻 Tech Stack-Skills
 
