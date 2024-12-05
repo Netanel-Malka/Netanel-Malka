@@ -18,4 +18,4 @@
 
 ### 📫 Contact Me:
 - **Email**: [netanel63071@gmail.com](mailto:netanel63071@gmail.com)
-- **LinkedIn**: [Netanel Malka](https://www.linkedin.com/in/netanel-malka-6987692a3/)
+- **LinkedIn**: [Netanel Malka](https://www.linkedin.com/in/netanel-malka/)
